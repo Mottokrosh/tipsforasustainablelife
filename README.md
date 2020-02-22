@@ -1,1 +1,0 @@
-# tipsforasustainable.life
